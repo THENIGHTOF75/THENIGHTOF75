@@ -8,7 +8,6 @@
 <br> mostly offtab but dont mind c+h 
 
 <br> more info in my strawpage + prns card! 
-<br> (i like bsd and object shows too)
 <br> if you want to interact with me more my twitter and discord are both @octanmarch :D
 
 <br> the chibi futchkit is drawn by my friend sodaker_109 on twitter! design belongs to me
