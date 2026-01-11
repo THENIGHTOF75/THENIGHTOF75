@@ -10,4 +10,4 @@
 <br> more info in my strawpage + prns card! 
 <br> if you want to interact with me more my twitter and discord are both @octanmarch :D
 
-<br> the chibi futchkit is drawn by my friend sodaker_109 on twitter! design belongs to me
+<br> ART ABOVE BELONGS TO ME, chibi futchkit in atabook by my friend sodaker_109 on twitter (design belongs to me)
