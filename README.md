@@ -18,7 +18,6 @@
 
   </div>
 </details>
-<br>
 
 <br> more info in my strawpage + prns card! 
 <br> if you want to interact with me more my twitter and discord are both @octanmarch :D
