@@ -14,6 +14,7 @@
     <p>I LOVE CUDDLING WITH PEOPLE especially my friends!! i'll get really anxious if i have no one to cuddle with :(</p>
     <p>if you're a friend of my friend but we don't know each other, i'll most likely interact!! i think ur awesome and i'd love to be friends! :D</p>
     <p>if i'm upset ill usually put dniuf in my name and hide my face while cuddling</p></p>
+    <p>if i'm in a good mood ill switch to my kinsona pony (marple)!!! i'll only switch to that pony around friends 
     <p>i might fall asleep at times hence why i may disconnect without saying/doing anything. sorry bout that!!</p>
 
   </div>
