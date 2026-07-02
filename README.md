@@ -24,5 +24,5 @@
 <br> if you want to interact with me more my twitter and discord are both @octanmarch :D
 
 <br> ART ABOVE AND ART IN ATABOOK BELONGS TO ME
-<br> PFP BY @@seraphysm
+<br> PFP BY @seraphysm
 
