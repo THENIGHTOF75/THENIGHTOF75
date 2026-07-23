@@ -7,8 +7,8 @@
 <br> 18 she/they
 <br> mostly offtab but dont mind c+h 
 
+ [<b>SEND ME A SONG</b>](https://meowplecake.straw.page/)<br>
 <details>
-  [<b>SEND ME A SONG</b>](https://meowplecake.straw.page/)<br>
   <summary><ins>PONY TOWN BYI</ins></summary>
 
   <div align="center">
